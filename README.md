@@ -12,7 +12,8 @@
 
 
 
-🤝🏻  Connect with Me
+🤝🏻  [Connect with Me](https://www.linkedin.com/in/virupakshiaparna/)
+
 
                                               [Aparna](https://www.linkedin.com/in/virupakshiaparna)
 
