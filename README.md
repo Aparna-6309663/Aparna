@@ -14,5 +14,6 @@
 
 🤝🏻  Connect with Me
 
-                                                [Virupakshi Aparna](https://www.linkedin.com/in/virupakshiaparna/)
+                                              [Aparna](https://www.linkedin.com/in/virupakshiaparna)
+
 
