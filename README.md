@@ -1,6 +1,6 @@
 # 👋  Hi there, I'm Aparna!
 
-👨🏻‍💻  About Me
+# 👨🏻‍💻  About Me
 
   🎓 As an international student, I left my family to pursue a Master's in Data Science & AI at FIU, finally graduating and becoming a Data Scientist.
   
